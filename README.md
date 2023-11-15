@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **chaitanya.chiilukuri@gmail.com**
 
-- ⚡ Fun fact **Humour:87%😉**
+- ⚡ Fun fact **Humour : 87%😉**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
